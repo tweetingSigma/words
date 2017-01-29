@@ -1,5 +1,9 @@
 
+### Tags : Soul, Mind, Experience
 
+>“Experience does for the soul what education does for the mind.”
+>
+> _Casey Neistat_
 
 
 
