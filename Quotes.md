@@ -1,4 +1,12 @@
 
+### Tags : Grit, Never give up
+
+> "It is not the size of the dog in the fight, it's the size of the fight in the dog."
+>
+> _Mark Twain_
+
+
+
 ### Tags : Soul, Mind, Experience
 
 >“Experience does for the soul what education does for the mind.”
