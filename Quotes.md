@@ -1,4 +1,11 @@
 
+### Tags : Fashion
+
+> "Fashion is a form of ugliness so intolerable that we have to alter it every six months. "
+>
+> _Oscar Wilde_
+
+
 ### Tags : Grit, Never give up
 
 > "It is not the size of the dog in the fight, it's the size of the fight in the dog."
