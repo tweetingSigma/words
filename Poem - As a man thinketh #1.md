@@ -1,4 +1,4 @@
-### As a man thinketh
+### As a man thinketh # 1
 
 _by James Allen_
 
