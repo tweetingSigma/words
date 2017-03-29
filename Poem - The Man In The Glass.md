@@ -2,6 +2,8 @@
 
 _by Peter Dale Wimbrow Sr._ 
  	 
+```
+
 When you get what you want in your struggle for self
   And the world makes you king for a day
 Just go to the mirror and look at yourself
@@ -22,4 +24,4 @@ You may fool the whole world down the pathway of years
 But your final reward will be heartache and tears
   If you’ve cheated the man in the glass. 
   
-  
+```  
