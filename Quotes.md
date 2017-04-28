@@ -7,6 +7,13 @@
 >
 > _from the book Farenheit 451_
 
+
+> "We overestimate what we can do in a day and underestimate what we can do in a year."
+>
+> _Multiple sources. Found many versions similar, but I loved this one the most._
+
+
+
 ### Tags : Fashion
 
 > "Fashion is a form of ugliness so intolerable that we have to alter it every six months. "
